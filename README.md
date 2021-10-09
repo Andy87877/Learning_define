@@ -1,1 +1,2 @@
-# Learning_define
+# define超好用的
+等等在加東西說明
